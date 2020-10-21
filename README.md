@@ -22,3 +22,8 @@ Demographics
 Age: 8-12 years old, sex: everyone, Casual players
 Platform and monetization
 Free to Play
+
+
+
+
+https://drive.google.com/file/d/1O4XikBpleWKTDqahJp_Ve62KdiGoCjhF/view?usp=sharing
